@@ -1,3 +1,3 @@
-"Hello, i'm good at Beat Saber."
+"i'm good at beat saber and gorilla tag."
 
 -Huggie
