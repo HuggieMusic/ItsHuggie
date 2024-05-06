@@ -1,3 +1,1 @@
-"i'm good at beat saber and gorilla tag."
-
--Huggie
+hi https://bio.link/huggie
